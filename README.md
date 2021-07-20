@@ -1,1 +1,12 @@
+## SOLUTIONS ARCHITECT | CLOUD DEVOPS ARCHITECT | AWS CERTIFIED | CKA | ALL-AROUND GEEK
 
+
+
+
+
+
+
+
+
+
+Star trek over star wars.
